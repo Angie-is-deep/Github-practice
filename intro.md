@@ -1,3 +1,3 @@
-Basically i will do what freecodecamp explained.
+Basically I will do what Freecodecamp explained.
 
-i will succeed soon, i just know it.
+I will succeed soon, i just know it.
